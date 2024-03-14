@@ -1,0 +1,1 @@
+I think if I don't manage to launch a career value in my career, I will still try to push myself to achieve my goal. I will put in more work and have strategies that can help me succeed. My family will not give up on me but encourage me to try again.
